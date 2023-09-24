@@ -1,0 +1,2 @@
+# bharat_awareness_of_disaster_management
+awareness of disaster management
